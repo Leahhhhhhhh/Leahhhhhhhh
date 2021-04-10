@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Leahhhhhhhh
+- 👀 I’m interested in Anime and Games
+- 🌱 I’m currently learning how to be a better person 😔
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me ...
